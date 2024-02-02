@@ -1,2 +1,2 @@
-play online  https://kodemeister-yt.github.io/BloodThirst/
+play it online  https://kodemeister-yt.github.io/BloodThirst/
  
